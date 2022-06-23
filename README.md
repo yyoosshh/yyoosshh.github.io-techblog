@@ -1,1 +1,1 @@
-# https-yyoosshh.github.io-techblog
+# yyoosshh.github.io-techblog
